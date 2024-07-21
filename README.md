@@ -2,7 +2,7 @@
 - 👀 I’m interested in ethical hacking,coding and a lil bit of gaming
 - 🌱 I’m currently learning ethical hacking
 - 💞️ need a friend for coding
-- 📫 How to reach me discord- krico_the_og gamil- kricoufo@gamal.com
+- 📫 How to reach me discord- krico_the_og gamil- kricoufo@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im an alien form neptune
 
