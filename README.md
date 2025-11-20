@@ -1,4 +1,4 @@
-- yo just an alien cam from neptune dc- krico_the_og 
+- yo just an alien came from neptune dc- krico_the_og 
 
 <!---
 KricoTheOG/KricoTheOG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
